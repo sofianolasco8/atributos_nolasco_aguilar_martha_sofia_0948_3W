@@ -27,6 +27,13 @@ EJERCICIO 7
 ![image](https://github.com/user-attachments/assets/12c650de-807f-4fd2-a408-cd2250c262de)
 ![image](https://github.com/user-attachments/assets/dbb3f9d3-73d1-4d58-84ae-4267c2de42d5)
 
+EJERCICIO 8
+![image](https://github.com/user-attachments/assets/142f35da-28ef-44ed-a361-957400661110)
+![image](https://github.com/user-attachments/assets/543bad34-5beb-4b43-bd7c-119a5910d8bf)
+
+
+
+
 
 
 
