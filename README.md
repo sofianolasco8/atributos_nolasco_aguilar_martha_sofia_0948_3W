@@ -39,6 +39,12 @@ EJERCICIO 10
 ![image](https://github.com/user-attachments/assets/7d7db79e-f62a-4916-ba7b-76e6b1986d04)
 ![image](https://github.com/user-attachments/assets/a491dfb2-4ece-4b0c-bcd2-f9652ff29b91)
 
+EJERCICIO 11
+![image](https://github.com/user-attachments/assets/147dbd35-54d2-45a5-9fdd-410eeef77f9b)
+![image](https://github.com/user-attachments/assets/dd7e6c6d-3914-42b3-b9a0-198278313e09)
+
+
+
 
 
 
