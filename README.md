@@ -20,6 +20,10 @@ EJERCICIO 5
 ![image](https://github.com/user-attachments/assets/48ae7239-9c68-467f-9074-7ad22470f6f5)
 
 EJERCICIO 6 
+![image](https://github.com/user-attachments/assets/dbb162af-ae6f-4b86-bed0-d49f9e3af9d3)
+![image](https://github.com/user-attachments/assets/6436f229-5d4e-47fa-b9be-febee4585af2)
+
+
 
 
 
